@@ -1,2 +1,2 @@
 # Spotify-Themes
-XMAS NOW AVAILAVBLE. MERRY CHRISTMAS
+![Screenshot](https://i.ibb.co/PGsNqT2v/Screenshot-36.png)
